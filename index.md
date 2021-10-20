@@ -7,10 +7,9 @@
 关于 小白兔电商的更多信息请持续关注炒饭捏！
 
 **被炒的炒饭**_B站：
-
-[https://store.steampowered.com/curator/33088444]: https://space.bilibili.com/16302815
+https://space.bilibili.com/16302815
 
 **橘子班**_STEAM：
 
-[https://store.steampowered.com/curator/33088444]: https://store.steampowered.com/curator/33088444
+https://store.steampowered.com/curator/33088444
 
